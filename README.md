@@ -1,6 +1,6 @@
 ## 👋Check this out: gprm.itsvg.in
 # 💫 About Me:
-💬 if it is to be said, so it be, so it is
+ 🌵 If it is to be said, so it be, so it is. 🌵
 
 
 ## 🌐 Socials:
